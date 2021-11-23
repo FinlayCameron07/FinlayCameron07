@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @FinlayCameron07
+- 👀 I’m interested in stuff :)
